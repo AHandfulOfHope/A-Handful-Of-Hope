@@ -33,7 +33,7 @@ We offer a **digital gravitational force** — a system where data simply refuse
 ---
 
 ## Read the Manifesto  
-[Whitepaper on Medium](https://medium.com/@leeahandfulofhope/a-system-that-neutralizes-all-hacking-even-quantum-edf0700ea9d3)
+[Digital Peace Revolution – Full Whitepaper on Medium](https://medium.com/@leeahandfulofhope/a-digital-peace-revolution-a-system-that-neutralizes-all-hacking-4af0162e5609)
 
 ---
 
